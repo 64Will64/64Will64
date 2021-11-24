@@ -6,4 +6,4 @@ i have <i>absolute dogshit</i> stuff on my profile:
 Game Mods/Scripts:
 - [roblox](https://github.com/64Will64/roblox) Roblox Exploiting Scripts
 
-my discord is <b>WiII#0300<b> idk what to put here lmao
+my discord is WiII#0300 idk what to put here lmao
